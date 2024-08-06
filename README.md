@@ -1,4 +1,4 @@
-## benvindo ao meu perfil 💞
+## bem vindo ao meu perfil 💞
 
 
 **BeatrizFelisbino/BeatrizFelisbino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
