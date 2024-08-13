@@ -8,7 +8,6 @@ Meu nome é Beatriz Felisbino
 
 ### Você pode entrar em contato comigo 📪
 00001088494742sp@al.educacao.sp.gov.br
-@beaxst03
 
 beijinhos 🐝
 
